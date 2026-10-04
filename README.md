@@ -34,3 +34,4 @@ cost-effectiveness without compromising
 
 Project Video .
 To watch the video please click here.https://drive.google.com/file/d/11o4UteHmS-n_G5wYDnWhFXvZXkAo5jCC/view?usp=drivesdk
+to view the project report, please click https://drive.google.com/file/d/1zCa09DyWrz49XDAds2gIIT_wFRSm4vqt/view?usp=drivesdk
